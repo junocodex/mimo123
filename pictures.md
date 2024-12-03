@@ -1,2 +1,2 @@
-Here are the pictures for Mimo assignment 1, 2, 3
+Here are the completed Mimo lessons 1-3
 
